@@ -1,1 +1,1 @@
-# sunyoung_portfolio.github.io
+# sunyoung_portfolio
